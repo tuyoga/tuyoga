@@ -22,8 +22,8 @@
 ---
 
 ### 📱 Find Me
-Instagram : @yogapradhitia_
-Email : @adhi23yoga@gmail.com
+- Instagram : @yogapradhitia_
+- Email : @adhi23yoga@gmail.com
 
 ---
 "𝘐𝘧 𝘵𝘩𝘦𝘳𝘦'𝘴 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘥𝘰 𝘵𝘰𝘥𝘢𝘺, 𝘥𝘰 𝘪𝘵. 𝘋𝘰 𝘯𝘰𝘵 𝘸𝘢𝘪𝘵 𝘶𝘯𝘵𝘪𝘭 𝘵𝘰𝘮𝘰𝘳𝘳𝘰𝘸" - Marq Marquez
